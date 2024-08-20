@@ -1,2 +1,2 @@
-# VIP1
+# Channel i
 CHANNEL I
